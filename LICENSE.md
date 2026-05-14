@@ -1,4 +1,4 @@
-#  
+#  Enhance Evernote for macOS with ultimate Macro for Evernote for macOS - multi-device sync and task automation, the #1 macro. Includes multi-device sync and task automation for a
 
 
 
